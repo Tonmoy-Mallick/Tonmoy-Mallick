@@ -3,8 +3,8 @@
 I'm Tonmoy Mallick.
 
 - Class 7 student from India
-- Learning Python and coding
-- Interested in software engineering
+- I love learning Python coding ❤️
+- Interested in software engineering ❤️
 - 🌱 I’m currently learning python, html, ect ...
 - 🤔 I’m looking for help with coding ...
 - 😄 Pronouns: He/Him
